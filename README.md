@@ -1,1 +1,4 @@
 # Uyga-Vazifa
+
+# Muallif
+Muhammmadshox
